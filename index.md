@@ -1,6 +1,6 @@
 Privacy Policy
 
-Last updated: [DATE]
+Last updated: 17/12/2025
 
 This Privacy Policy describes how Manadaba pro we collects, uses, and protects user information when you use our mobile application.
 
